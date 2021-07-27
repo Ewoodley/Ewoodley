@@ -10,5 +10,5 @@
 ## Find Me
 You can also find me on LinkedIn [Here](www.linkedin.com/in/eric-woodley-63b5bb1a6)
 ## My Critters
-I have several animals in my house but one tends to demand most of my attention when she can get it and that is my ![Furball](https://github.com/Ewoodley/Ewoodley/blob/cd6ff8363bf60632811043f124a642ba7166aee7/20210727_045808.jpg)
+I have several animals in my house but one tends to demand most of my attention when she can get it and that is my Furball, Gizmo ![Furball](https://github.com/Ewoodley/Ewoodley/blob/cd6ff8363bf60632811043f124a642ba7166aee7/20210727_045808.jpg)
 
